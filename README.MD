@@ -1,5 +1,7 @@
-### HEY WASSUP EVERY-
-Hi! I'm Mosnar23. I'm a young gamer, tech enthusiast, fetus of a programmer, and very smol Youtuber.
-### Links
-https://youtube.com/@Mosnar23
-https://screwschoolblockers.github.io/
+Jack of all trades, trash at everything
+
+Other profiles I'm proud of:
+[Steam](https://steamcommunity.com/id/Mosnar23/)
+[RetroAchievements](https://retroachievements.org/user/Mosnar23/)
+[YouTube](https://www.youtube.com/@Mosnar23/)
+[Wikipedia](https://en.wikipedia.org/wiki/User:Mosnar231/)
